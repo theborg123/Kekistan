@@ -1,1 +1,1 @@
-# Kekistan ITS ALIVE
+# Kekistan
